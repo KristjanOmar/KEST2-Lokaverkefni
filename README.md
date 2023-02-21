@@ -1,1 +1,1 @@
-# KEST2-Lokaverkefni
+# KEST2VW Lokaverkefni haust 2022
